@@ -4,3 +4,5 @@ Engaging with alumni makes me a little nervous, but I guess they were in my shoe
 
 I am going to get really good at scheduling and using my calendar! It's something I've always wanted to do and do well, so this is a great opportunity to try it.
 Reviewing my notes and previous classes are things that I haven't done much before, but I've already started to get better at it.
+
+I want to give a shout-out to my GF Audri as she has helped me prepare and make the move into a new career! The support has been great!
